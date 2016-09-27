@@ -1,0 +1,79 @@
+## CESARE DAGOSTINO
+
+
+Samuel Mullerplein 15D 3023SK Rotterdam (NL)  
+cesdag@hotmail.com  
++31659649413
+
+### EDUCATION AND QUALIFICATIONS
+----
+January 2009 - February 2012  
+**Master’s Degree in International Business**  
+Ca’ Foscari University of Venice  
+Thesis: _Mapping Energy Consumption and Evaluating Strategies to Reduce Carbon Emissions. The Case of U.S. Industrial Sector_
+   
+October 2004 - October 2008  
+**Bachelor’s Degree in Economics and Management**  
+University of Verona
+
+###WORK EXPERIENCE
+----
+March - June 2016  
+**International Market Research Agent**  
+Global Data Collection Company  
+* Tele-researching through CATI services across both consumer and business sectors
+
+June 2013 - January 2016  
+**Line Cook**  
+Restaurant O’Pazzo, Rotterdam  
+* Prepared starters or desserts for up to 100 diners every night;
+* Trained interns.
+
+November 2012 - June 2013  
+**Accountant assistant**  
+Tax Consulting Chartered Accountant Office Dagostino  
+* Interfaced with both clients and public administration offices;  
+* Collected clients’ fiscal documentation and arranged clients’ payments;  
+* Digitalized paper documents and built a digital database;  
+* Managed office budget in relation to administrative activities.
+
+May 2012 - November 2012  
+**Internship**  
+Consulate of Italy in Detroit  
+* Managed the availability of funding for consulates’ activities;  
+* Participated in the organization of promotional events in collaboration with the local associations;  
+* Drafted the informative report for the Italian Ambassador in U.S needed for the meeting with Sergio Marchionne Fiat-Chrysler CEO;  
+* Managed a range of marketing activities: from supporting a marketing campaign to maintaining Consulate website and social media.
+
+September 2010 - May 2011  
+**Research Assistant**  
+Nicholas School of Environment, Duke University  
+* Mapped energy consumption and carbon emissions related to the U.S. manufacturing industries and to the power sector;  
+* Mastered the use of Microsoft Visio in order to carry out the visual mapping of energy consumption and carbon emissions;  
+* Considered energy use patterns I evaluated strategies and policy options to improve both competitive position and environmental performance of U.S. industries;  
+* Presented to the U.S. Environmental Protection Agency the findings of my research.
+
+  
+###SKILLS AND COMPETENCES
+----
+**Languages**: Italian (native), English (fluent,), Dutch (beginner)
+
+**Computing**: Microsoft Office Suite and Microsoft Visio (advanced), Adobe Photoshop, Illustrator (Intermediate), Microsoft Windows OS (advanced), SQL Server (beginner) Oracle (beginner)
+
+**Problem Solving**: Studying for a business degree which incorporates quantitative and qualitative analysis requires analytical, numerical and problem solving skills. I further developed these skills working as a research assistant where I foster the ability to understand information quickly and accurately and to evaluate and choose workable solution to the problem appreciating all the variables involved.
+
+**Team Work**: Working in a restaurant’s kitchen as part of five people team let me developed the ability to work fairly and productively alongside others, to form relationships at all levels, and motivate and support other team members. Furthermore, I could improve my ability to work under pressure in a fast-paced environment.
+
+**Communication**:	I have gained strong communication skills during my degree course from giving presentations at seminars to participation in group work. By working at the Student Services Division I enhanced the ability to communicate clearly and succinctly and to convey complex information at the right level so it is understood by others. This experience let me understand the importance of high quality customer service within an organization.
+
+	
+###EXTRACURRICULM ACTIVITIES
+----
+Course in Studio Music Recording and Mixing based on Steinberg Cubase.
+Organized electronic happenings, collaborated with multiple associations to create events by contacting artists, managing small budgets, dealing with funding bodies creating flyers, marketing shows, reviewing electronic releases for a local newspaper.
+Participated to a number of conferences and workshops related to sustainable development and sustainable energy systems.
+
+
+###HOBBIES
+----
+Passionate cook, amateur runner and basketball player, consumer technology trends follower, sound quality appreciator and club attender.
